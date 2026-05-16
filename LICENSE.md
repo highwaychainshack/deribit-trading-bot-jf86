@@ -1,4 +1,4 @@
-# 
+# Get the ultimate deribit trading bot with deribit trading bot ultimate Strategy | multi-exchange-support & low-frequency. Featuring multi-exchange-support and low-frequency, it's
 
 
 
